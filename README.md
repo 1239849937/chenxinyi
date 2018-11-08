@@ -1,2 +1,2 @@
 # chenxinyi
-i  want to be outstanding programmer
+i  want to be an outstanding programmer
